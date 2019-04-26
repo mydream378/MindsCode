@@ -211,3 +211,5 @@ Everything will be ok in the end If it is not ok, it is not the end.
 
 修身储能，当继续砥砺前行。 下个路口，见！
 
+Thing globally, act locally, you can be more than you are.
+
